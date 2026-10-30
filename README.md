@@ -6,8 +6,8 @@
     <tr>
       <td>
      $${\color{#f2c17c}kiki}$$ / $${\color{#da8a52}icarus}$$ / $${\color{#f2c17c}banhammer}$$ <br>
-     s/he hyr him <br>
-     banhammer irl  <br>
+     s/he hyr him 5tn susp npd iwc<br>
+     banhammer irl +windf fam yume  <br>
      go follow my <a href="https://github.com/pwppy">main account</a> ok <br>
       </td>
     </tr>
