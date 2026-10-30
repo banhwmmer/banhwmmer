@@ -5,7 +5,7 @@
   <table>
     <tr>
       <td>
-     kiki / icarus / banhammer <br>
+     $${\color{#f2c17c}kiki}$$ / $${\color{#da8a52}icarus}$$ / $${\color{#f2c17c}banhammer}$$ <br>
      s/he hyr him <br>
      banhammer irl  <br>
      go follow my <a href="https://github.com/pwppy">main account</a> ok <br>
