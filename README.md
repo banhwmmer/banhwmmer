@@ -13,4 +13,4 @@
     </tr>
   </table>
 
-<img src="https://i.imgur.com/a3wizX1.png" width="230" align="left" alt="pwppy">
+<img src="https://i.imgur.com/a3wizX1.png" width="235" align="left" alt="pwppy">
